@@ -1,3 +1,3 @@
-# asciiLorde.txt
+# asciiLIFE
 
-Dedicated to the Queen Herself
+Dedicated to the the women in my life who have left their mark on the world.
